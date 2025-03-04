@@ -1,1 +1,1 @@
-Un mini jeu sur George le chat le très gros chat
+Un mini jeu sur George le chat roux
